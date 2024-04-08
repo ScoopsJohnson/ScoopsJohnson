@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @ScoopsJohnson
+- 🍀 I'm a bit _green_ to coding, but I am eager to learn
+- 💪 I want to make things that help people improve themselves and improve the communities around them
+- 🆇 Feel free to reach out to me on **X** @ScoopsJohnson
